@@ -1,0 +1,5 @@
+- 👋 Hi, I’m: @69shrek
+- 👀 I’m interested in: your mother
+- 🌱 I’m currently learning: your mother
+- 💞️ I’m looking to collaborate on: your mother
+- I am in love with: my mother
